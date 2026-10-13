@@ -1,1 +1,1 @@
-# my-first-project
+# my-coding-journey {~ _ ~}
